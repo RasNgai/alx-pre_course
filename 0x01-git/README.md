@@ -1,1 +1,2 @@
-Learningi
+Learning
+Time is fast spent
